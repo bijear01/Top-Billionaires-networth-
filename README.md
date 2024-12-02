@@ -33,10 +33,10 @@ African billionaires worth just 0.74% across the whole word
 coming to the top 5 Billionaires ELon Musk is on top of the Game but the total networth is based on the fictive dataset
 ![image](https://github.com/user-attachments/assets/165bc0f5-dfb6-4155-81a8-543fe7f7dc57)
 
-the relationship
+the relationship by Population growth rate / density 
 ![image](https://github.com/user-attachments/assets/8bb403d3-1d4b-4c90-bca3-8bb334571f86)
 
-the AVG relationship 
+the AVG net worth  of UN member status 
 ![image](https://github.com/user-attachments/assets/1917d1c8-ccaf-42c5-8e01-884eccdf2e1b)
 
 
